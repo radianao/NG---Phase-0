@@ -1,1 +1,1 @@
-# Non-Graded-Challenge-1
+# Non-Graded-Challenge
